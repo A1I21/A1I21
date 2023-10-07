@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ali@iharbi.com ,+966553805066**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1dAXhJ3si90VlD25LL2ry41RsHyHXrVsl/view?usp=sharing](https://drive.google.com/file/d/19cCMOHXhpjgvZlm5uFPO_bqgekL4yhIN/view?usp=sharing)]([https://drive.google.com/file/d/1dAXhJ3si90VlD25LL2ry41RsHyHXrVsl/view?usp=sharing](https://drive.google.com/file/d/19cCMOHXhpjgvZlm5uFPO_bqgekL4yhIN/view?usp=sharing))
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1dAXhJ3si90VlD25LL2ry41RsHyHXrVsl/view?usp=sharing]]
 
 - ⚡ Fun fact **I love being around computer all the time🤓**
 
